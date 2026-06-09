@@ -1,4 +1,4 @@
-
+automatic Surfshark Module | no-logs-policy + obfuscation is the best Surfshark module, featuring no-logs-policy and obfuscation. Secure, fast, and optimized for privacy.
 
 
 
